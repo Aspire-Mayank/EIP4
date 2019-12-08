@@ -1,0 +1,1 @@
+Images has been annotated.
